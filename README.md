@@ -100,8 +100,8 @@ I do NOT support or promote illegal hacking activities.
 
 ---
 
-## 🔥 Author
+## 🔥 Author:
 
-**[Your Name]**  
+**[Jishnu Raghavan G]**  
 BTech Biotechnology @ NIT Allahabad  
 Aspiring Cybersecurity Enthusiast 🚀
