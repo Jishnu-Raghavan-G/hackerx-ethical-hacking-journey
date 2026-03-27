@@ -104,4 +104,4 @@ I do NOT support or promote illegal hacking activities.
 
 **[Jishnu Raghavan G]**  
 BTech Biotechnology @ NIT Allahabad  
-Aspiring Cybersecurity Enthusiast 🚀
+Aspiring Biotech Founder & Cybersecurity Enthusiast 🚀
